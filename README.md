@@ -2,7 +2,6 @@ New changes done by developer
 
 some more changes dondddddddeddd
 
+IF YOU TRUST MORE AND MORE 
 
-cccccc
-hai hello
-
+YOU WILL SUFFER MORE AND MORE
